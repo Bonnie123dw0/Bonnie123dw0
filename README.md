@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Bonnie123dw0
+- 👀 I’m interested in Fnaf, Roblox, Generally how games like Minecraft generate, and more.
+- 🌱 I’m currently learning How to programm
+- 💞️ I’m looking to collaborate on N/A
+- 📫 How to reach me N/A
